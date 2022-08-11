@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Onyinyechi12th, I'm a wife,mother, virtual assistant and an aspiring woman in tech..
+- 👋 Hi, I’m @Onyinyechi12th, I'm a wife,mother, virtual assistant and an aspiring tech woman.
 - 👀 I’m interested in the tech world because I always like to involve myself in creating value.
 - 🌱 I’m currently learning coding 
 - 💞️ I’m looking to collaborate on building a more effective less stressful communication tool,to interact effectively in virtual environment.
